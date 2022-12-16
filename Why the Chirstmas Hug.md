@@ -4,7 +4,7 @@ Well, the question is easy... today the company I work for (Publicis Sapient) ha
 
 ### DO:
 
-Cara Santissima Publicis, sono un contractor... spero di poter diventare un interno, così da vivere il vero spirito aziendale che ad ora non trovo. Dato che vivo lontano, non potrò ricevere alcun regalo fisico, però mi piacerebbe donare un regalo, più che riceverne uno. Visto che le distanze si fanno notare, ho pensato di regalare... un NFT sulla blockchain $TON ai colleghi che spesso mi hanno sopportato durante l\'anno passato. Un bell'abbraccio digitale che spero porti un sorriso a tutti quelli che mi diranno su che indirizzo riceverlo 🤗
+Cara Santissima Publicis, sono un contractor... spero di poter essere stato un buon collega, e di esserlo ancora, così da vivere il vero spirito aziendale che ad ora molti non trovano. Dato che vivo lontano, non potrò ricevere alcun regalo fisico, però mi piacerebbe donare un regalo, più che riceverne uno. Visto che le distanze si fanno notare, ho pensato di regalare... un NFT sulla blockchain $TON ai colleghi che spesso mi hanno sopportato durante l\'anno passato. Un bell'abbraccio digitale che spero porti un sorriso a tutti quelli che mi diranno su che indirizzo riceverlo 🤗
 
 L\'NFT sarà in questa collezione: https://bit.ly/ChristmasHugNFT
 
