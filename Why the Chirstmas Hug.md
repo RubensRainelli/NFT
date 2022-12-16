@@ -26,4 +26,4 @@ Both the Rhyme, image of the NFT and the NFT collection comes from my mind and m
 
 Here for the [Christmas Hug Nursery Rhyme](https://github.com/RubensRainelli/NFT/blob/main/ChristmasHug.md "Christmas Hug Nursery Rhyme")
 
-#### So dear colleagues and friends... send me a message on Telegram to receive your gift :-) I did the gift, but you need to pack it yourself :-P
+#### So dear colleagues and friends... send me a message on Telegram to receive your gift 😊 I did the gift, but you need to pack it yourself 😛
