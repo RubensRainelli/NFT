@@ -8,7 +8,9 @@ Cara Santissima Publicis, sono un contractor... spero di poter diventare un inte
 
 L\'NFT sarà in questa collezione: https://bit.ly/ChristmasHugNFT
 
-Per reclamarlo i colleghi dovranno mandarmi un messaggio su [Telegram a @RubensRainelli](http://rubensrainelli.t.me "Telegram a @RubensRainelli") e genererò il loro singolo NFT!
+Per reclamarlo i colleghi dovranno mandarmi un messaggio su [Telegram a @RubensRainelli](http://rubensrainelli.t.me "Telegram a @RubensRainelli") e genererò i loro due NFT!
+
+Uno sarà solo per loro da tenere come gesto iconico d\'affetto, l\'altro potranno rivenderlo o regalarlo a qualcun\'altro come gesto d'affetto 😊
 
 ### DON'T DO:
 
