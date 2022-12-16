@@ -1,6 +1,6 @@
 # Why I did the Christmas Hug collection?
 
-Well, the question is easy... today the company I work for (Publicis Sapient) had sent a nice mail asking to the colleagues about what they should wish to receive as gift from a colleague. Clicking on the form it starter a really nice form, with [\"Shake Up The Happyness - Train\" music](https://www.youtube.com/watch?v=J-8VCL4uSUc "Shake Up The Happyness - Train") as background melody, asking for the DOs requests, like a real Santa destinated letter, and the DON\'Ts list. Well, I chose to reply as follows: (it\'s in Italian, so use a translator to read it)
+Well, the question is easy... today the company I work for (Publicis Sapient) had sent a nice mail asking to the colleagues about what they should wish to receive as gift from a colleague. Clicking on the form it starter a really nice form called "Publicis Santa", with [\"Shake Up The Happyness - Train\" music](https://www.youtube.com/watch?v=J-8VCL4uSUc "Shake Up The Happyness - Train") as background melody, asking for the DOs requests, like a real Santa destinated letter, and the DON\'Ts list. Well, I chose to reply as follows: (it\'s in Italian, so use a translator to read it)
 
 ### DO:
 
